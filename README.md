@@ -3,7 +3,7 @@
 > **Security is just an illusion.**  
 > **Kami tidak menyerang, hanya mengingatkan.**  
 > **Gunakan dengan bijak!**
->  **cek hasil :** [deface](https://traserofficial.github.io/defaceadminhubungi.com/)
+>  **cek hasil :** [deface](https://traserofficial.github.io/defaceadminhubungi/)
 
 ---
 
